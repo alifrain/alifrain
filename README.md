@@ -4,7 +4,7 @@ I’m currently interested in learning how to code or programming stuff because 
 
 I'm currently still trying to learn the basic but im on stuff like python,java script,and html 
 
-You can contact me by dming me on instagram : @alifwrain or email me at alif28rahman@gmail.com
+You can contact me by dming me on instagram : @alifrain_ or email me at alif28rahman@gmail.com
 
 <!---
 alifrahmancao/alifrahmancao is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
