@@ -1,6 +1,6 @@
 Hi, I’m alif
 
-I’m currently interested in learning how to code or programming stuff because i just started learning  about programming after i got in college
+I’m currently interested in learning how to code properly because i just started learning about programming after i got in college
 
 I'm currently still trying to learn the basic but im on stuff like python,java script,and html 
 
